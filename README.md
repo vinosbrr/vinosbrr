@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vinosbrr
 - 👀 I’m interested in prgrammer and development
-- 🌱 I’m currently learning breathing 
+- 🌱 I’m currently learning breathing manual
 - 💞️ I’m looking to collaborate on my self
 - 📫 How to reach me oktavinotrputra@gmail.com
 - 😄 Pronouns: ...
